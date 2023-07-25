@@ -1,3 +1,3 @@
 # tiebot
 
-tier bot
+no leas no ha y nada que leer
